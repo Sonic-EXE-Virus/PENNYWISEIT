@@ -1,9 +1,11 @@
-<p align="center"><img width="900" height="300" alt="image" src="https://github.com/user-attachments/assets/45472b0c-b849-45aa-be4c-baeab6057fa8" />
+<p align="center"><img width="3840" height="1100" alt="image" src="https://github.com/user-attachments/assets/1b120db9-a38c-491f-8ddb-c5ec722eb4e7" />
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=950000&width=435&lines=Whant+Some+Candy+,+Kid?;Come+one+Come+all+!;+To+see+the+best+clown+of+them+all!!;+The+one,+the+only,+PENNY+WISE;Free+Hugs+!;Want+A+Balloon+?;Come+Float+.+.+.We+ALL+float+down+here+.+.+.;.+.+.;Wanna+Play+With+Me+?;All+good+comes+to+those+.+.+.;Who+Float+.+.+.)](https://git.io/typing-svg)
 
-![](https://komarev.com/ghpvc/?username=PENNYWISEIT&color=470000&label=Floated+Away)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=098c77&width=435&lines=So+Many+Souls+To+Play+With+.+.;So+Little+Time+.+.+.+Wouldn't+You+Agree+?;Dont.+Run.+.+Stay+With+Me;Your+TOO+Slow;Ready+For+Round+2+?;Found+You+.+.)](https://git.io/typing-svg)
+
+![](https://komarev.com/ghpvc/?username=PENNYWISEIT&color=027279&label=Out+Of+Lives)
 
 
 <p align="center">HIA!! please follow me, on the road to 300 !! - If not thats okay! i still love ya <3
@@ -12,7 +14,7 @@
  
  <p align="center">IF you sneeze on me in game i will hide you fully for 15 mins
 
-<p align="center">My names LJ, Soda, Sprout or Monty!- or whatever you wanna call me! I go by the pronouns She/Her, i wear glasses so dont mind if im a bit BLIND, i have ADHD and a bit of autisim so please dont mind me if im a bit slow, i Can get very upset over some small things that i dont like talking about so please dont mind me, if your rude to me or just racist or anytype of phobic [besides the bad ones] i will freely block you for a cupple of days
+<p align="center">My names LJ, Soda, Sonic or Monty!- or whatever you wanna call me! I go by the pronouns She/Her, i wear glasses so dont mind if im a bit BLIND, i have ADHD and a bit of autisim so please dont mind me if im a bit slow, i Can get very upset over some small things that i dont like talking about so please dont mind me, if your rude to me or just racist or anytype of phobic [besides the bad ones] i will freely block you for a cupple of days
 
 <p align="center">Im usully hanging out with friends or sitting alone, but dont fret come cuddle with me! i enjoy it just make sure to tell me first, im really nice i dont mind talking about stuff that you want to!
 
@@ -26,7 +28,8 @@
 
 <p align="center">Im really into a bunch of fandoms and would probbly update this once i figure out more :D
 
-<p align="center"><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/6ad9b03b-747d-4032-bcf2-fdff87ee9ee9" />
+<p align="center"><img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/4887b474-a988-4320-af44-23e61c987964" />
+
 
 
 <p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , Avatar , Hello Neighbor , Lego , Scream , Sonic.EXE , Mr. Hopps Playhouse , - TBC
@@ -36,7 +39,8 @@
 <p align="center">MY MAIN FRIENDS- Ollie , EJ , Birb , Null , Nousername , kai/fish , mxsf1tsand TBC
 
 
-<p align="center"><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/4f4d2192-e9f0-431b-8983-da497dea67e2" />
+<p align="center"><img width="300" height="221" alt="image" src="https://github.com/user-attachments/assets/5272765e-ef8d-4fd5-8f0f-aa86bdea0aab" />
+
 
 
 <p align="center">Currently have a cute boyfriend
